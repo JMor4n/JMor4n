@@ -7,7 +7,7 @@
 - 💞️ I’m looking to collaborate on stop/minimize Cybercrime.
 
 
-### Get in Touche
+### Get in Touch
 - 📫 You can reach me at Tweeter @JMor4n
 - 📫 [You can see my background in LinkedIn](https://www.linkedin.com/in/juan-m-66082035/ "Juan Moran's LinkedIn")
 
