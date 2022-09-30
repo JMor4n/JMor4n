@@ -1,4 +1,4 @@
-## 👋 Hi, I’m Juan Moran
+## 👋 Hi, I’m J Moran
 
 ---
 
