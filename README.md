@@ -3,7 +3,7 @@
 ---
 
 - 👀 I’m interested in Cybersecurity
-- 🌱 I’m currently learning Elicitation techniques and Cybersecurity with Sydney University
+- 🌱 I’m currently learning Elicitation techniques and Forensic.
 - 💞️ I’m looking to collaborate on stop/minimize Cybercrime.
 
 
